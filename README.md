@@ -1,4 +1,4 @@
-- 👋 Howdy!, I’m @SCM-Dude
+- 👋 Howdy!, @SCM-Dude here ...
 - 👀 My passion for positive organizational change, 
 paired with 25+ years of experience in automation/optimization
 fuels my enthusiasm for coaching & leading teams 
